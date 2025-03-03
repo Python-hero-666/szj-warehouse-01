@@ -1,2 +1,1 @@
-# szj-warehouse-01
-test
+我有一个很妙的想法这里写不下
